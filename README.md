@@ -1,0 +1,1 @@
+# pknewbs4asset
